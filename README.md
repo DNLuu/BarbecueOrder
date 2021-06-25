@@ -5,6 +5,7 @@ brisket - collard greens and bacon, fries
 
 ## Jesse
 brisket - potato salad, baked beans
+
 1/2 rack smoked pork ribs - collard greens, coleslaw
 
 ## Vu
